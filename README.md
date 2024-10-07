@@ -1,1 +1,1 @@
-Fresh Graduate of Information System
+JavaScript, HTML, CSS, 
